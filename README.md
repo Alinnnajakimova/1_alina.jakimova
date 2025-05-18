@@ -1,1 +1,1 @@
-.
+Alīnas projekta darbs 
