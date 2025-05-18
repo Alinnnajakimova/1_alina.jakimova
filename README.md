@@ -1,1 +1,1 @@
-.
+Projekts Alīna Jakimova 
